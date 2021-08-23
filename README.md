@@ -1,1 +1,0 @@
-# task_11_summer_program
